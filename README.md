@@ -1,2 +1,2 @@
-#Fattery NFT
+# Fattery NFT
 Welcome to the heartwarming universe of Fattery, where community-driven, rechargeable NFTs, adorned with endearing liquid battery designs, reign supreme. Each NFT, crafted from a myriad of materials, serves as a beacon of creativity, inviting enthusiasts to fuel them within the vibrant Fuel Network, fostering collaboration, innovation, and boundless joy. Join us in nurturing these adorable digital companions, as together, we embark on a journey to redefine the possibilities of decentralized art..
